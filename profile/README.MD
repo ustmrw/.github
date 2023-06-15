@@ -1,4 +1,4 @@
-# The United First Nations Proposal
+# United First Nations Proposal
 
 ## Peace. Truth. Law.
 
@@ -30,11 +30,7 @@ We can do better than these current systems.
 
 Great! Welcome aboard! You can now call yourself a co-founder of our young nation!
 
-Connect with me (Steven Johnson, co-founder) through IRC (#UFN on #freenode https://webchat.freenode.net/ Wednesdays from 3-4 PM CST) or join our weekly Zoom call from 3-4 PM CST on Saturdays.
-
-[Join Our Zoom Meeting](https://us04web.zoom.us/j/77517047443?pwd=whwjObgw3AIAs63RZeSQCJRQPawMbP.1)
-
-Passcode: 2kwV53
+Connect with me (Steven Johnson, co-founder) on Twitter [@UFirstNations](https://twitter.com/UFirstNations).
 
 ---
 
