@@ -4,13 +4,11 @@
 
 ### Links
 
-### Explain:
-### [UFN Proposal Shared Document | Google Docs](https://docs.google.com/document/d/1UyIVXY5gRCpqHhSNSJuv1oSqAMLoJkzz55F362igWHw/edit?usp=sharing)
+#### [UFN Proposal Shared Document | Google Docs](https://docs.google.com/document/d/1UyIVXY5gRCpqHhSNSJuv1oSqAMLoJkzz55F362igWHw/edit?usp=sharing)
 
-### [UFN Site | GitHub Pages](https://unitedfirstnations.github.io/ufn.github.io/)
+#### [UFN Site | GitHub Pages](https://unitedfirstnations.github.io/ufn.github.io/)
 
-### Imagine:
-### [Future Software | Figma](https://www.figma.com/files/team/1234872038259274057)
+#### [Future Software | Figma](https://www.figma.com/files/team/1234872038259274057)
 
 ---
 
