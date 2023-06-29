@@ -10,6 +10,8 @@
 
 #### [Future Software | Figma](https://www.figma.com/files/team/1234872038259274057)
 
+#### [Discord](https://discord.gg/QXvD9TNJVF)
+
 ---
 
 ### FAQs
