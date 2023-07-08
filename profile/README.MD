@@ -18,7 +18,7 @@
 
 #### "Why not just ask for a constitutional convention?":
 
-The [US Declaration of Independence](https://www.archives.gov/founding-docs/declaration-transcript) was signed 1776. This year will mark the 247th year since its signing. I believe that for the changes needed in our global governmental systems, laws passed by corrupt politicians will not cut it. Thus, I ask you: what will this continent look like 247 years from today? What will this hemisphere look like in the year 2270? Will we solve the climate emergency? Will the Earth still be habitable?
+The [US Declaration of Independence](https://www.archives.gov/founding-docs/declaration-transcript) was signed 1776. This year marked the 247th year since its signing. I believe that for the changes needed in our global governmental systems, laws passed by corrupt politicians will not cut it. Thus, I ask you: what will this continent look like 247 years from today? What will this hemisphere look like in the year 2270? Will we solve the climate emergency? Will the Earth still be habitable?
 
 #### "You mustn't joke about this. This is treason. Are you mad?":
 
