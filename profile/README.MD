@@ -10,7 +10,7 @@ Peace. Truth. Law.
 
 #### [US Tomorrow Proposals | Google Docs](https://docs.google.com/document/d/1UyIVXY5gRCpqHhSNSJuv1oSqAMLoJkzz55F362igWHw/edit?usp=sharing)
 
-#### [US Tomorrow Site | GitHub](https://usnproposal.github.io/p/)
+#### [US Tomorrow Site | GitHub](https://ustmrw.github.io/-/home)
 
 #### [Design System | Figma](https://www.figma.com/files/team/1234872038259274057)
 ---
@@ -22,10 +22,10 @@ Peace. Truth. Law.
 I am thankful for the liberties granted to us in the [US Bill of Rights](https://www.archives.gov/founding-docs/bill-of-rights-transcript) and the responsibilities of the [US Declaration of Independence](https://www.archives.gov/founding-docs/declaration-transcript). I believe that the politicians in America and other countries are still beholden to the wealthy and that preserving this planet for generations to come won't be easy. 
 
 **Fun fact:**
-The US Declaration of Independence was adopted in 1776. This year marks the 247th year since its adoption. 
+The US Declaration of Independence was adopted in 1776. This year marks the 248th year since its adoption. 
 
 **Questions to consider:** 
-What will this continent look like 247 years (c. 2270) from today? In addition, what will Earth look like in the year 2270? 
+What will this continent look like 248 years (c. 2271) from today? In addition, what will Earth look like in the year 2271? 
 Will we have solved the climate emergency? 
 Will the Earth still be habitable without advanced habitats?
 
