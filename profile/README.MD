@@ -81,4 +81,4 @@ Connect with me (Steven Johnson, a co-founder and IT dude) on 𝕏 (RIP Twitter)
  - Global South
  - Welfare state
 
-### All help is much appreciated! This is an all hands on deck situation.
+### All help is much appreciated!
